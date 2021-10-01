@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### [ABOUT ME](https://nine-spy-45d.notion.site/a7a977f114d24fb7b2224153ef0567c9)
 <!--
 **HeegeePark/HeegeePark** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
